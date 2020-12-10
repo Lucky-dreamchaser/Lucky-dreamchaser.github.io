@@ -1,6 +1,6 @@
-## Welcome to GitHub 
+# Welcome to GitHub --班璐的个人主页
 
-![alt forExample](https://ss2.bdstatic.com/70cFvnSh_Q1YnxGkpoWK1HF6hhy/it/u=3862952743,2546672597&fm=26&gp=0.jpg)
+![alt Myself-photo](https://ss2.bdstatic.com/70cFvnSh_Q1YnxGkpoWK1HF6hhy/it/u=3862952743,2546672597&fm=26&gp=0.jpg)
 
 <img src="https://ss2.bdstatic.com/70cFvnSh_Q1YnxGkpoWK1HF6hhy/it/u=3862952743,2546672597&fm=26&gp=0.jpg" height="50px" width="50px">
 
