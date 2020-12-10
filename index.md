@@ -1,5 +1,5 @@
 # Welcome to GitHub --班璐的个人主页
-![alt Myself-photo](javascript:;)
+![alt Myself-photo](http://m.qpic.cn/psc?/V13HQXgk0FOoxx/45NBuzDIW489QBoVep5mcQaeByJF2iDmP0vxdTeTgdD*Z7UkeRiI4YGat*djTv0Z23qYR2ZlCXgDIT8wW75dg0rO4QMzp0L4s569MVmTzj8!/b&bo=HALAAwAAAAABF.0!&rf=viewer_4&t=5height="50%" width="50%")
 ![alt Myself-photo](https://ss2.bdstatic.com/70cFvnSh_Q1YnxGkpoWK1HF6hhy/it/u=3862952743,2546672597&fm=26&gp=0.jpg)
 Hello,大家好！我的名字叫做班璐，今年19岁，来自内蒙古。说到内蒙古，大家瞬间想到的一定是一望无际的大草原和滋香的烤羊肉吧。别着急，接下来由我给大家介绍一下我眼中的内蒙古Dangdangdangdang闪亮登场:
 <img src="https://ss2.bdstatic.com/70cFvnSh_Q1YnxGkpoWK1HF6hhy/it/u=3862952743,2546672597&fm=26&gp=0.jpg" height="50px" width="50px">
