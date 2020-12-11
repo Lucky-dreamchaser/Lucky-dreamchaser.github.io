@@ -1,5 +1,5 @@
 # Welcome to GitHub --班璐的个人主页
-## Hello,大家好！我的名字叫做班璐，今年19岁，来自内蒙古。![alt Myself-photo]<img src="http://m.qpic.cn/psc?/V13HQXgk0FOoxx/45NBuzDIW489QBoVep5mcQaeByJF2iDmP0vxdTeTgdD*Z7UkeRiI4YGat*djTv0Z23qYR2ZlCXgDIT8wW75dg0rO4QMzp0L4s569MVmTzj8!/b&bo=HALAAwAAAAABF.0!&rf=viewer_4&t=5" height="18%" width="19%">
+## Hello,大家好！我的名字叫做班璐，今年19岁，来自内蒙古。![alt Myself-photo]<img src="http://m.qpic.cn/psc?/V13HQXgk0FOoxx/45NBuzDIW489QBoVep5mcQaeByJF2iDmP0vxdTeTgdD*Z7UkeRiI4YGat*djTv0Z23qYR2ZlCXgDIT8wW75dg0rO4QMzp0L4s569MVmTzj8!/b&bo=HALAAwAAAAABF.0!&rf=viewer_4&t=5" height="16%" width="20%">
 ### 生日：2001.9.28   星座：天平座   联系方式：1435232760@qq.com
 ### 学校：南京理工大学  专业：工业设计  现居地：江苏南京
 ### 我是个活泼爱笑的女孩，喜欢读书，喜欢运动。
