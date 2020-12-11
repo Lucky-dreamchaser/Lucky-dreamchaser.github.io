@@ -16,7 +16,7 @@
 #### 哦，对了，来到这里的我学会了画画，会画一点简单的东西了<img src="http://m.qpic.cn/psc?/V13HQXgk0PH81j/45NBuzDIW489QBoVep5mcVbTNkAgg9FUDIawNlg.s*NS7tPw5E*zU4zMRExMiQncWVRHeqr5u6HpaYweCJwjH1s.y9J7PQMPMnBkk89Lf3I!/b&bo=zwU4BAAAAAABJ*Y!&rf=viewer_4&t=5" height="20%" width="20%"> <img src="http://m.qpic.cn/psc?/V13HQXgk0PH81j/45NBuzDIW489QBoVep5mcVbTNkAgg9FUDIawNlg.s*PhJ*OlrWsBsDuYXUkPGpN4D1VPXRUy**7yLeUeiuXYeWfYL21MfyLx.hnVbij84YQ!/b&bo=IAY4BAAAAAABJxo!&rf=viewer_4&t=5" height="20%" width="20%"><img src="http://m.qpic.cn/psc?/V13HQXgk0PH81j/45NBuzDIW489QBoVep5mcZUeOLDX1i2bASgMRMuI.tXdE1ilalZhgZ.81LiGVTFgRxwGT5QmF9l8OE1hVZxAT8B59EaHVufFf5nqouQmO6c!/b&bo=OAQPBgAAAAABFwU!&rf=viewer_4&t=5" height="20%" width="20%">
 #### 2021年未来展望:新的一年有很多愿望啦，首先希望自己拥有✨绩点✨啦，高一点高一点嘿嘿嘿嘿<img src="http://m.qpic.cn/psc?/V13HQXgk0PH81j/45NBuzDIW489QBoVep5mcT4Z97xiXUIt.EJ8U21SuKh*dm6Zq1A6J31Uj8xOZddJRZPK5NORaR2u5LL2kQoMLYlrhzLnxV9VfikOMrA77Zk!/b&bo=OAQ4BAAAAAABFzA!&rf=viewer_4&t=5" height="20%" width="20%">2020的你很努力了，2021继续加油,祝愿2021年的我所有努力不被辜负，所有目标都能实现，祝愿自己的未来越来越好哦
 ### 2021，我来，我见，我征服！凡过往皆为序章，所有将来皆为可盼。2021，你好！
-#### 其实很想和大家分享下我的军人梦想。{%aplayer"https://www.baidu.com/link?url=vNo9OXfovnJDh6KGS0M_35OoH2mPZrthERQOKYTu5QLJ597I_KiuVxskStRePmOlyubqMyyIZb94PCC7KAtwlJ-GGv2ylSlDWR6OB-Yr2XvPXu1Bj17nmuuZ_XGVcHRDEZ_BhyUt5SffvV1k-2RFke4pRlIJEvtNlO0kw6nm0Te&wd=&eqid=94d7fa3d000d8e3a000000055fd332cb"%}
+#### 其实很想和大家分享下我的军人梦想。{%aplayer" https://c.y.qq.com/base/fcgi-bin/u?__=lqWffl "%}
 #### 我对军人的崇拜可能只是源于小时候看电视剧《我是特种兵之火凤凰》，那时候的我还很小吧，但总会站在镜子面前模仿电视剧里女兵很飒的动作，想象自己身处她们的任务下会做出怎样的反应；后来又有《猎毒人》上映，我当时最大的梦想可就是当一名缉毒警了，觉得又飒又酷。虽然最后没有选择做一名军人，但平时总会关注一些与中国特种兵有关的新闻，每当看到中国军人的热血视频或是听到军歌是总是会令我为之动容，感觉自己有满腔热血，拥有一个中国人的神圣感和使命感。希望以后的我可以以其他的方式体验特种兵的生活，以自己的力量为祖国的发展注添活力与能量。
 
 
