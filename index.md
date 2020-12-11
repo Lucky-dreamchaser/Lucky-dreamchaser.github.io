@@ -1,5 +1,5 @@
 # Welcome to GitHub --班璐的个人主页
-## Hello,大家好！我的名字叫做班璐，今年19岁，来自内蒙古。![alt Myself-photo]<img src="http://m.qpic.cn/psc?/V13HQXgk0FOoxx/45NBuzDIW489QBoVep5mcQaeByJF2iDmP0vxdTeTgdD*Z7UkeRiI4YGat*djTv0Z23qYR2ZlCXgDIT8wW75dg0rO4QMzp0L4s569MVmTzj8!/b&bo=HALAAwAAAAABF.0!&rf=viewer_4&t=5" height="16%" width="35%">
+## Hello,大家好！我的名字叫做班璐，今年19岁，来自内蒙古。[Myself-photo]<img src="http://m.qpic.cn/psc?/V13HQXgk0FOoxx/45NBuzDIW489QBoVep5mcQaeByJF2iDmP0vxdTeTgdD*Z7UkeRiI4YGat*djTv0Z23qYR2ZlCXgDIT8wW75dg0rO4QMzp0L4s569MVmTzj8!/b&bo=HALAAwAAAAABF.0!&rf=viewer_4&t=5" height="10%" width="35%">
 ### 生日：2001.9.28   星座：天平座   联系方式：1435232760@qq.com
 ### 学校：南京理工大学  专业：工业设计  现居地：江苏南京
 ####   我是个活泼爱笑的女孩，喜欢读书，喜欢运动。
@@ -33,7 +33,7 @@
 ###   2021年未来展望:新的一年有很多愿望啦，首先希望自己拥有✨绩点✨啦，高一点高一点嘿嘿嘿嘿。2020的你很努力了，2021继续加油,祝愿2021年的我所有努力不被辜负，所有目标都能实现，祝愿自己的未来越来越好哦
 ###   2021，我来，我见，我征服！凡过往皆为序章，所有将来皆为可盼。2021，你好！<img src="http://m.qpic.cn/psc?/V13HQXgk0PH81j/45NBuzDIW489QBoVep5mcT4Z97xiXUIt.EJ8U21SuKh*dm6Zq1A6J31Uj8xOZddJRZPK5NORaR2u5LL2kQoMLYlrhzLnxV9VfikOMrA77Zk!/b&bo=OAQ4BAAAAAABFzA!&rf=viewer_4&t=5" height="20%" width="20%">
 
-###   其实很想和大家分享下我的军人梦想，对军人有一种很强烈的向往
+####   其实很想和大家分享下我的军人梦想，对军人有一种很强烈的向往
 ####   我对军人的崇拜可能只是源于小时候看电视剧《我是特种兵之火凤凰》，那时候的我还很小吧，但总会站在镜子面前模仿电视剧里女兵很飒的动作，想象自己身处她们的任务下会做出怎样的反应；后来又有《猎毒人》上映，我当时最大的梦想可就是当一名缉毒警了，觉得又飒又酷。虽然最后没有选择做一名军人，但平时总会关注一些与中国特种兵有关的新闻，每当看到中国军人的热血视频或是听到军歌是总是会令我为之动容，感觉自己有满腔热血，拥有一个中国人的神圣感和使命感。希望以后的我可以以其他的方式体验特种兵的生活，以自己的力量为祖国的发展注添活力与能量。
 ## <img src="http://m.qpic.cn/psc?/V13HQXgk0PH81j/45NBuzDIW489QBoVep5mcYTxoMsbtRVEx*3TB6g*gRQ72.Wq3PHVAjLvmNMxnf4TLfrZ9hHvr94PB2zoqv*Sqvsr3tS48XS4LpRq6i1in1g!/b&bo=pAGmAQAAAAABFzI!&rf=viewer_4&t=5" height="30%" width="30%">女孩要勇敢
 ##        要记得对做自己的太阳
