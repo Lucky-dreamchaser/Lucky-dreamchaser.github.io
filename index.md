@@ -4,7 +4,7 @@
 ### 学校：南京理工大学  专业：工业设计  现居地：江苏南京
   ####   我是个活泼爱笑的女孩，喜欢读书，喜欢运动。
 
-  ####   喜欢学习读书，享受在这个过程中汲取知识，收获经验。<img src="http://m.qpic.cn/psc?/V13HQXgk0PH81j/45NBuzDIW489QBoVep5mcWtnao6Mso58DYPlnfm*1TAjY2LLib2c5Fqd6NeUdPnslYZJA1Y8YxZ8TOdr5Snct*aRIAtayoJcUWF.ZQ7ttis!/b&bo=YwKXAQAAAAABF8c!&rf=viewer_4&t=5" height="15%" width="20%"><img src="http://m.qpic.cn/psc?/V13HQXgk0PH81j/45NBuzDIW489QBoVep5mcWtnao6Mso58DYPlnfm*1TDfNG8KyenSx07U0gAUj*zmS4ejhkSmyWsA9vGdxSvfSeDxuPgOrXOL6XzP7z4yiR0!/b&bo=iQKyAQAAAAABFwg!&rf=viewer_4&t=5" height="15%" width="20%"><img src="http://m.qpic.cn/psc?/V13HQXgk0PH81j/45NBuzDIW489QBoVep5mcZQqAKPayhFVxRmXFFXVFd1F9AhDmbaAe6KIwcuUR5kmiK9kOufP7y5f29GClnGSzBDV9GsSwrHK*OIrWxfXWZE!/b&bo=OAQ4BAAAAAABFzA!&rf=viewer_4&t=5" height="15%" width="20%">
+  ####   喜欢学习读书，享受在这个过程中汲取知识，收获经验。<img src="http://m.qpic.cn/psc?/V13HQXgk0PH81j/45NBuzDIW489QBoVep5mcWtnao6Mso58DYPlnfm*1TAjY2LLib2c5Fqd6NeUdPnslYZJA1Y8YxZ8TOdr5Snct*aRIAtayoJcUWF.ZQ7ttis!/b&bo=YwKXAQAAAAABF8c!&rf=viewer_4&t=5" height="15%" width="20%"><img src="http://m.qpic.cn/psc?/V13HQXgk0PH81j/45NBuzDIW489QBoVep5mcWtnao6Mso58DYPlnfm*1TDfNG8KyenSx07U0gAUj*zmS4ejhkSmyWsA9vGdxSvfSeDxuPgOrXOL6XzP7z4yiR0!/b&bo=iQKyAQAAAAABFwg!&rf=viewer_4&t=5" height="15%" width="20%"><img src="http://m.qpic.cn/psc?/V13HQXgk0PH81j/45NBuzDIW489QBoVep5mcZQqAKPayhFVxRmXFFXVFd1F9AhDmbaAe6KIwcuUR5kmiK9kOufP7y5f29GClnGSzBDV9GsSwrHK*OIrWxfXWZE!/b&bo=OAQ4BAAAAAABFzA!&rf=viewer_4&t=5" height="12%" width="20%">
   #### 信息流时代下，比起电子书，我还是更喜欢读纸质书，陶醉于纸质书的油墨清香中，会忘记时间。文理分科的时候随便选了理，却没想到在三年的学习时光里我竟然爱上了它，喜欢物理错综复杂的电路磁场，喜欢化学的无机反应，喜欢生物的基因遗传，喜欢他们的一切，享受解题带来的快感，享受学习理科很久时大脑筋疲力尽的感觉。立志做一名IT女，希望为祖国的科研发展尽力献身。崇拜王小云，希望以后有机会可以接触到密码学，神秘又有趣，希望自己可以尝试多种不同的可能性。
 
   ####   喜欢运动，尤其喜欢冒险与刺激，球类小达人，会各种球类运动，只是不喜欢足球⚽。我妈比较胆小，不敢让我玩刺激的运动，有次出去玩了一个真正意义上的蹦极，就是用一根橡皮筋绑住脚踝，从悬崖上往下跳，这个运动在那里很是火爆，可我妈态度非常强硬，坚决不让我去，在我的再三恳求下，在我妈和工作人员的再三确认下，终于勉勉强强地同意了。哈哈哈，不过，在我妈的正确引导下，我也树立来冒险刺激游戏的底线：有任何生命危险的绝对不玩，反人类的绝对不玩。顺便说下前段时间引发关注的翼装飞行，如果有朋友关注我的Github个人主页，那么我的建议是不要玩，目前这项运动在世界上参与人数不到600人，失败率占30%。追求刺激冒险本身没有错，但一定要建立在生命安全得以保证，道德伦理得以被维护的前提下。
@@ -38,7 +38,7 @@
   ####   其实很想和大家分享下我的军人梦想，对军人有一种很强烈的向往
   ####   我对军人的崇拜可能只是源于小时候看电视剧《我是特种兵之火凤凰》，那时候的我还很小吧，但总会站在镜子面前模仿电视剧里女兵很飒的动作，想象自己身处她们的任务下会做出怎样的反应；后来又有《猎毒人》上映，我当时最大的梦想可就是当一名缉毒警了，觉得又飒又酷。虽然最后没有选择做一名军人，但平时总会关注一些与中国特种兵有关的新闻，每当看到中国军人的热血视频或是听到军歌是总是会令我为之动容，感觉自己有满腔热血，拥有一个中国人的神圣感和使命感。希望以后的我可以以其他的方式体验特种兵的生活，以自己的力量为祖国的发展注添活力与能量。
   ## <img src="http://m.qpic.cn/psc?/V13HQXgk0PH81j/45NBuzDIW489QBoVep5mcYTxoMsbtRVEx*3TB6g*gRQ72.Wq3PHVAjLvmNMxnf4TLfrZ9hHvr94PB2zoqv*Sqvsr3tS48XS4LpRq6i1in1g!/b&bo=pAGmAQAAAAABFzI!&rf=viewer_4&t=5" height="30%" width="30%">女孩要勇敢
-##        要记得对做自己的太阳
+##        要记得做自己的太阳
 ##        发光发热照亮前进的路
 ##        也别忘了温暖别人喔
   #### 很多人都说我像个吉祥物，充满正能量，总能给身边的人带去快乐和好运。哈哈，我自己也有很强的自我调节能力，总是对生活充满激情，现在想想，我天生乐观的性格可能源于我有一个逗比妈妈。我妈在工作上是个女强人，虽然工作很忙，但她每天都会花很多时间在我身上。小时候，每天晚上会跟着少儿频道的红果果绿泡泡做手工，每期的前一个晚上电视上会讲明天做手工要用的东西，有的很普通很常见，像彩纸剪刀一类的，有些则比较难办到了，例如废旧的笔管，用剩下的礼品包装带等，但每次妈妈都会尽她最大的努力给我带回这些东西，即使实在找不到，她也能找到一个东西巧妙地代替。记得有一次需要100根用完了的笔管，还必须把笔头拔掉，用水把笔芯里的油墨洗掉，她本来上班就很累，但她回来后还是饶有兴致地和我一起清洗笔管，又陪我坐在电视机面前用笔管完成了一个自制笔筒。她还会在每个周末带我出去玩，我喜欢运动，她就会打听哪里有运动类的项目，或是哪里适合爬山，打球，野炊。她对我的学习从来不做要求，只是希望我可以尽力。但可能正是处于她的散养型教育，我非常喜欢学习，总是自觉认真完成各项作业，在每一次的考试中也会尽全力对待。我们两的关系呢，就像是朋友一样，平时在学校里发生的有趣事情我总会讲给她，而她也总会认真地听，我们两常常在沙发上笑成一团。谢谢妈妈，她真的给了我这世界上最好的陪伴，教我做人，给与了我健全的人格和乐观开朗的品性。平时同学们有什么心事或困难总会找我来诉说，每次我都可以使他们开心起来；当我遇到烦心事或我认为是天大的困难，我妈总是会给我合理可行的建议，有时就算她没有什么办法，她的一番开导也总是会让我重拾信心，再难再累都会继续往前走。妈妈，我想说，因为有你，也因为我是我，世界那么大，可我从来都不怕。
